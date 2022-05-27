@@ -1,7 +1,10 @@
 # Changelogs
 
-Test hier 
+Dede testet das weil das gemacht werden muss
+Wir melden uns
 
-Test da 
+*Meld*
 
-Ich bin da
+Ich bin da und du?
+
+SUCKY SUCKY ONE TIMEEEE
